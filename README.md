@@ -1,1 +1,0 @@
-# helpingstudy.github.io
